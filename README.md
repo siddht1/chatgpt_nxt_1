@@ -1,1 +1,0 @@
-# chatgpt_nxt_1
